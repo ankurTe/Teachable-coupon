@@ -1,4 +1,4 @@
-# Teachable Coupon Code (May 2025) Save $99 Annually
+# Teachable Coupon Code (June 2025) Get 50% Off Deal
 
 Want the best [**Teachable coupon code**](https://partnerstack.teachable.com/8js9yaa966ik)? Then, you're in the right place!
 
