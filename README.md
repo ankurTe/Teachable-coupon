@@ -12,7 +12,8 @@ In this article, I'll show you how to get up to **50% off** on Teachable Starter
 
 Save **$80/month** and enjoy up to **[50% off](https://partnerstack.teachable.com/8js9yaa966ik)** on the Teachable Advanced plan when you choose annual billing!
 
-![Teachable coupon code](https://lh7-rt.googleusercontent.com/docsz/AD_4nXewaCizHRu6gEOtzWiAHoHRD6CzjsGY3El9us9qFFkpul0agRKTCc0_U7N4SdJybfCr7NRE8g02Ghuo-a7IMnjD2t-kct1cRoEhtqjUImFORCcfAVII-0bTkhvZG5ZLWEPlGrNS-A?key=VOGyYFgwNp532SfQ0w9QLWeG)
+[![teachable coupon code](https://github.com/user-attachments/assets/529fd424-a8d4-4bc6-a3e4-83b82b0b9cb4)
+](https://partnerstack.teachable.com/8js9yaa966ik)
 
 What you will get:
 
