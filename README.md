@@ -1,317 +1,204 @@
 # Teachable Coupon Code | Get 50% OFF Promo + Free Trial 2025
 
-Want the best [**Teachable coupon code**](https://teachcoupon.discount/recommends/offer/)? Then, you're in the right place!
+Are you looking for a [**Teachable coupon code to claim 50% off**](https://teachcoupon.discount/recommends/offer/) on their top-tier membership, and if you opt for an annual subscription, you will get **3 months free access** on Teachable with our discount codes.
 
-If you're a teacher, coach, or business owner, these special Teachable promo codes will help you save big on **Starter, Builder, Growth, and Advanced**.
+## 50% off Teachable Coupon Code on Advanced Plan
 
-Plus, if you pick the yearly plan, you’ll get extra perks like a **7-day free trial**.
-
-In this article, I'll show you how to get up to **50% off** on Teachable Starter and Builder plans and save $99/annually, enjoy top features at the lowest price.
-
-## Teachable Promo Code: Get Up to 50% Off Advanced Plan!
-Get an **[50% discount](https://teachcoupon.discount/recommends/offer/)** instantly on the advanced plan if you choose the annual billing. This deal helps you save up to $247/year.
-
-[![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfx8CJ4bI7NjGVeJVcmzjZ2cHw4IJjzgkNwvWsHFhmtK8gRV_iCunyMHbks3ir-wVa9CWcLxIPI_HE4q5YMcShvVRgHjO6AkWVVVrw4C7aQUC50NqSogu6EFq7JpTzC6Hxdb4vb?key=G6S41jEcMGeYWBCA3n_VHw)
+[**Save 50% instantly on Teachable’s Advanced Plan**](https://teachcoupon.discount/recommends/offer/) when you choose annual billing and cut up to $247 from your yearly cost. This exclusive deal gives you everything you need to grow your online teaching business, including live chat support, a white-label website, custom admin permissions, free subtitle and translation generation, and unlimited integrations to streamline your workflow. Take advantage of this limited-time Teachable coupon today and scale your courses with premium features at half the price.
+[<img width="828" height="112" alt="discount button" src="https://github.com/user-attachments/assets/7dd30124-9cd7-41e4-a896-31e0e0814a30" />
 ](https://teachcoupon.discount/recommends/offer/)
-sdfsd
-What you will get:
 
-- Live chat support
-- White label website
-- Custom admin permissions
-- Free subtitle and translation generation
-- Unlimited integrations
+## Enjoy 25% off With Teachable Promo Code [Growth Plan]
 
-## Teachable Discount Code: Get 25% Off the Growth Plan!
-
-Get [**25% off**](https://teachcoupon.discount/recommends/offer/) on the Growth plan with this Teachable discount code, and save up to **$50/month** on your Growth subscription.
-
-[![Teachable promo code](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdW-Vft2QKlVeCU5PI6MbNX033g9-tpcx1nkPiesMZn7w3mJFUM-Enzv0fslQ4Ne8wXyPaHanpfxHCnikUOwaQFLvHIv75e1tJVbm7-9yFH1AJgJu9bkXx9PBiIOUKcI2QVwmvskw?key=VOGyYFgwNp532SfQ0w9QLWeG)
+[**Unlock 25% savings on Teachable’s Growth Plan**](https://teachcoupon.discount/recommends/offer/) with this promo code and cut up to $50 each month from your subscription. With this deal, you’ll get everything you need to scale faster, including global payments and tax solutions across 200+ countries, powerful upsells with coupons and abandoned cart recovery emails, a built-in affiliate program to expand your reach, and professional course certificates to boost student credibility.
+[<img width="828" height="112" alt="discount button" src="https://github.com/user-attachments/assets/7dd30124-9cd7-41e4-a896-31e0e0814a30" />
 ](https://teachcoupon.discount/recommends/offer/)
-What you will get:
 
-- Global payments and tax solutions in **200+ countries** and regions
-- Upsells, coupons, and abandoned cart recovery emails
-- Affiliate program
-- Course certificates
+## ‘MAGIC10’ Teachable Promo Code
 
-## Teachable Coupon Code: Get the Builder Plan for Just $69/Month!
-
-Get the Builder plan at [**just $69/month**](https://teachcoupon.discount/recommends/offer/) with this Teachable Builder plan deal.
-
-Enjoy full access to all the premium features without spending a fortune.
-
-Grab it now and start building your dream course today
-
-[![Techable builder plan](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcsEoeE9KXgMB9EozKfB_2Btmr902vrVrNB-sP59W2Gw_TR5px5sSZKrwDAibWwLYIyfo6GzL0zzCzWyOg1Gih3o7IOngMmVauSQ4ppW2t47hLuRVzNBoWxQoepHc1qf1vzJREN?key=VOGyYFgwNp532SfQ0w9QLWeG)
+Use the code **MAGIC10** at checkout and [**enjoy an instant 10% discount site-wide**](https://teachcoupon.discount/recommends/offer/) on any Teachable product. This special one-time offer stacks with existing deals, giving you even more savings on your plan of choice. Don’t miss the chance to grab extra value while this Teachable promo code lasts.
+[<img width="828" height="112" alt="discount button" src="https://github.com/user-attachments/assets/7dd30124-9cd7-41e4-a896-31e0e0814a30" />
 ](https://teachcoupon.discount/recommends/offer/)
-What you will get:
 
-- 0% transaction fee
-- Unlimited product creation
-- 5 published products
-- Create with AI
-- iOS student mobile app
+## Teachable $249 Discount Code For Builder Plan
 
-## Save $10 on the Teachable Starter Plan!
-
-Now, [**save $10**](https://teachcoupon.discount/recommends/offer/) on the Starter plan if you go with the annual subscription.
-
-[![Save $10](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfkEpW9v4KAufhLMkik2QzvNF16bZ_nyd8YT4us4UK4p7s1OY-hCDt7Z7MkM24iEj-NvfU1o1En4lPp2_S1Nbhbu0QSuwiL2ZcjSgRYMNbDRPbRF7W5P9KZYg6QQO5kXuoux17KMw?key=VOGyYFgwNp532SfQ0w9QLWeG)
+[**Save $249 annually on Teachable’s Builder Plan**](https://teachcoupon.discount/recommends/offer/) with this exclusive discount code and unlock premium features designed to help you launch and scale without overspending. With this deal, you’ll enjoy 0% transaction fees, unlimited product creation, up to five published products, powerful AI tools to speed up course building, and a student-friendly iOS mobile app for seamless learning on the go.
+[<img width="828" height="112" alt="discount button" src="https://github.com/user-attachments/assets/7dd30124-9cd7-41e4-a896-31e0e0814a30" />
 ](https://teachcoupon.discount/recommends/offer/)
-This special one-time coupon helps you save even more on top of existing deals, making it the perfect time to invest in your online courses.
 
-Whether you're just starting with the Starter Plan or need advanced features with the Growth Plan, this discount applies to both.
+## Teachable Discount Code To Save $600 on Growth Plan
+
+[**Cut $600 off your annual subscription**](https://teachcoupon.discount/recommends/offer/) with this Teachable discount code and get full access to the powerful Growth Plan. This offer unlocks advanced features like a white-label website, custom admin permissions, and free subtitle and translation generation, along with everything included in the Builder Plan. Take advantage of this deal today and scale your online teaching business with premium tools while keeping your costs low.
+[<img width="828" height="112" alt="discount button" src="https://github.com/user-attachments/assets/7dd30124-9cd7-41e4-a896-31e0e0814a30" />
+](https://teachcoupon.discount/recommends/offer/)
 
 ## Teachable Discount Code | Save $99 Annually [Site-Wide]
 
-[**Save $99**](https://teachcoupon.discount/recommends/offer/) annually on everything with this Teachable Discount code, and unlock advanced tools designed for serious creators.
-
-[![Teachable discount code](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdaZ3ZbcXfF0qWuoGRnFl9cXn4EcBAcPu2CSawH17x8RUaEE30rioxfZ2joOWfOuoqa83REHfhleBG-hx_VyJ1swKfs5Iyay73TepU-xHkSz7phRUe7CQYSowq_SjtRhPJJm1Ic?key=VOGyYFgwNp532SfQ0w9QLWeG)
+[**Save $99 annually across all plans**](https://teachcoupon.discount/recommends/offer/) with this Teachable discount code and get instant access to advanced tools built for serious creators. Whether you’re just starting or scaling your online business, this site-wide deal helps you unlock premium features at a lower cost. Don’t miss the chance to claim your savings and power up your teaching journey today.
+[<img width="828" height="112" alt="discount button" src="https://github.com/user-attachments/assets/7dd30124-9cd7-41e4-a896-31e0e0814a30" />
 ](https://teachcoupon.discount/recommends/offer/)
-## Teachable 7-Day FREE Trial – Try It Risk-Free!
 
-With the Teachable [**7-day free trial**](https://teachcoupon.discount/recommends/offer/), you get full access to premium features without spending a dime.
+## **Teachable 7-Day FREE Trial – Try It Risk-Free!**
 
-[![Teachable free trial](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcd7rK__cbN8lZKz2-NtfjwxtyWWtukzdkVPWNWBwYu_j1drzqLCqsuFf-ClXlIJqyhlTZbzolFHqteQ0yqE48_hPbMj71qACoCMa2VA69FM7pXc8R6DPh_bcpbGTQXTqHNFSDjiw?key=VOGyYFgwNp532SfQ0w9QLWeG)
+Start your teaching journey with [**Teachable’s 7-day free trial**](https://teachcoupon.discount/recommends/offer/) and enjoy full access to premium features without paying a cent. This no-risk offer lets you explore everything Teachable has to offer, from course creation tools to advanced integrations, so you can decide if it’s the right platform for your goals. Sign up today and experience Teachable’s full potential completely free.
+[<img width="828" height="112" alt="discount button" src="https://github.com/user-attachments/assets/7dd30124-9cd7-41e4-a896-31e0e0814a30" />
 ](https://teachcoupon.discount/recommends/offer/)
-This is the perfect chance to explore everything Teachable has to offer and see if it’s the right fit for you.
 
 ## Teachable 3 months free Coupon [Annual Billing]
 
-Get a [**3-month access for free**](https://teachcoupon.discount/recommends/offer/) with this coupon deal if you go with the annual billing.
-
-Which is a savings of $117 for 3 months.
-
-[![Teachable 3 months free](https://github.com/user-attachments/assets/810ff650-7fcb-4347-9ae7-1b56ca7f2850)
+[**Get 3 months of Teachable completely free**](https://teachcoupon.discount/recommends/offer/) when you choose annual billing and save $117 right from the start. This deal gives you full access to all premium features without paying a dime for the first three months, making it the perfect way to kick off your teaching journey at a lower upfront cost.
+[<img width="828" height="112" alt="discount button" src="https://github.com/user-attachments/assets/7dd30124-9cd7-41e4-a896-31e0e0814a30" />
 ](https://teachcoupon.discount/recommends/offer/)
 
-## Teachable MAGIC10 Discount Code - Get 10% OFF
-Use '**[MAGIC10](https://teachcoupon.discount/recommends/offer/)**' discount code while checking out to claim 10% off instantly. This teachable deal is applied site-wide, which means you can apply it to any product.
+## Teachable Black Friday Deal | Save 35% Off
 
-This special one-time coupon helps you save even more on top of existing deals.
-[![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcNT81WelnQxU_u4gTGDhkDETPr5H-OLhIbX5Xg683XZy1e_GTj0CeNdXgBdWb7iOGgoxFafWlmSJHMDjzxixEMoN_D1TkeXdkyJU49LU0QEejN3PCOWEeoPtTimS_6kt3Bafg6Gg?key=VOGyYFgwNp532SfQ0w9QLWeG)
+During the Teachable Black Friday sale, [**creators saved 35% on all plans site-wide**](https://teachcoupon.discount/recommends/offer/). This limited-time deal applied to everything on the platform, giving users the chance to unlock premium tools and grow their online courses at the year’s lowest price. Stay tuned for the next Teachable Black Friday offer to grab similar savings.
+[<img width="828" height="112" alt="discount button" src="https://github.com/user-attachments/assets/7dd30124-9cd7-41e4-a896-31e0e0814a30" />
 ](https://teachcoupon.discount/recommends/offer/)
 
-## Teachable Black Friday Deal | Save 35% Off [Expired]
+## **Teachable Coupons & Discounts To Save Up To $600**
 
-You could grab a [**35% discount**](https://teachcoupon.discount/recommends/offer/) during the Teachable Black Friday deal, the deal was applicable to everything.
+| **Deal** | **Action** | **Notes** |
+| --- | --- | --- |
+| [**Save $120**](https://teachcoupon.discount/recommends/offer/) on Starter Plan | Claim Savings | Switch to annual billing and cut $120 off compared to paying monthly while keeping access to all Starter features. |
+| [**Save $240**](https://teachcoupon.discount/recommends/offer/) on Builder Plan | Claim Savings | Pay annually and save $240 on the Builder Plan while enjoying unlimited products, AI tools, and 0% transaction fees. |
+| [**Save $600**](https://teachcoupon.discount/recommends/offer/) on Growth Plan | Claim Savings | Lock in annual billing and reduce your costs by $600 while unlocking advanced features like white-labeling and custom admin permissions. |
+| Referral Program | Earn Credit | Invite friends to Teachable and earn credits toward your own subscription every time someone signs up through your link. |
+| Seasonal Promotions | Explore Deals | Look out for limited-time offers during major events like Black Friday or Cyber Monday to grab the biggest discounts of the year. |
 
-## Teachable Promo Codes & Offers 2025
+**How to Claim Teachable Coupon?**
 
-Looking for the best Teachable discounts? Here’s a quick overview of the top deals and promo codes available right now. Grab these offers before they expire!
+Follow these **6 easy steps** to claim your discount on Teachable.
 
-| **Teachable Deals & Coupons**                                       | **Discount Link**  |
-| ------------------------------------------------------------------- | ------------------ |
-| Save \$50/month on the Advanced plan                                | [Save \$50 ](https://teachcoupon.discount/recommends/offer/)         |
-| Get Growth Plan at just \$139/month (annual plan)                   | [25% Off](https://teachcoupon.discount/recommends/offer/)            |
-| Get 10% Off – Use code “MAGIC10”                                    | [“MAGIC10”](https://teachcoupon.discount/recommends/offer/)          |
-| Get the Starter Plan for \$39/month – Exclusive for new instructors | [66% Off](https://teachcoupon.discount/recommends/offer/) on starter |
-| 7-Day Free Trial – Explore paid features risk-free                  | [Free Trial](https://teachcoupon.discount/recommends/offer/)         |
-| Free Account – Start without any cost                               | [Free Account](https://teachcoupon.discount/recommends/offer/)       |
+**Step 1:** Visit the [Teachable website](https://teachcoupon.discount/recommends/offer/) and click on the **Pricing** button in the top menu to explore the plans and find the one that fits your goals.
+<img width="892" height="351" alt="homepage" src="https://github.com/user-attachments/assets/68bd98ec-0d5e-465c-9aa7-fadaaf21bf46" />
 
+**Step 2**: **Select the Teachable plan** that best matches your needs and budget, whether you’re just starting out or ready to scale your online business.
+<img width="892" height="351" alt="homepage" src="https://github.com/user-attachments/assets/68bd98ec-0d5e-465c-9aa7-fadaaf21bf46" />
 
-## How to Claim a Teachable Coupon?
+**Step 3: Create your Teachable account in just minutes** by entering the necessary details, or log in if you’re already a member, and get ready to unlock powerful tools for building and selling your courses.
+<img width="928" height="372" alt="pricing" src="https://github.com/user-attachments/assets/13882107-d909-4c37-bed0-3bc7123057be" />
 
-Follow these **6 easy step**s to claim your discount on Teachable.
+**Step 4:**  **Enter your billing information** and payment details securely, then click **Next** to move one step closer to launching your courses with Teachable.
+<img width="848" height="617" alt="create an account" src="https://github.com/user-attachments/assets/1f98870a-9ca0-486b-afa7-d1e5e49d2541" />
 
-**Step 1:** Go to the [**Teachable website**](https://partnerstack.teachable.com/8js9yaa966ik) and click on the pricing button in the menu.
-
-![Teachable website](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcdrJwSMDclF-qTKCSJeeeXlnM2FcAUsN5bIPr-QF5mIS8B1Pyduz6baxZnUzzOeVIccPq4rxq-twCO6THzsH9cV-i-C_6fFXG_omT9NIbED6Y9GZAtC6N_pyt41R_qUB0-W0naJQ?key=VOGyYFgwNp532SfQ0w9QLWeG)
-
-**Step 2:** **Choose the plan** that works best for you.
-
-![choose the plan](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc5QJXQnbxxVh_uRxxxtpUeQGWHf5gT6NNaZ-MU2aXKdvBKaDObyk5cQBE5OGy1avJTUkgVFqV44Qcu6DG_tue2U-WbM0Jb_gPmE8Jha8dwlX3r46DH8QsqztgvI6Xn8U05ZftV?key=VOGyYFgwNp532SfQ0w9QLWeG)
-
-**Step 3:** **Sign up for a Teachable account** or log in if you already have one.
-
-![sign up](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfQCI7cIll1W9KK0QIfsOORE0_uqnpEbfHmLSjMJRdBbE5oyhhTDTvUo6yJ5vfyqRoTBPYR0O671B1ggi0UaIM-501HEl2BGZRSyHktxVPjw-AM8MoNlZKG07NOQVlFW3wlKDXyRA?key=VOGyYFgwNp532SfQ0w9QLWeG)
-
-**Step 4:** **Enter your billing address** and payment details, then click Next.
-
-![enter billing details](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeNXNZAdb-ssVu0zcoBZ_5DY-uLjd-m45r7yG1aTLPxX0pq51a63N1uBQlgBtEIJfmPxdApC81yuLH5yjcFTuFHtMmsAaHTDOJLCUQ7NiOoieB0YF7dRIaSmUq3aFXBDABN2bpT6Q?key=VOGyYFgwNp532SfQ0w9QLWeG)
-
-**Step 5:** Type in your Teachable coupon code and click Apply.
-
-![enter coupon code](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcNV1pQd8RwyRajzxHlKh43XDnPsKGGf0WwqNxAf5ubXTHJnFVTPBg_AEbZuFS8TCy1gxIy28On0Y-DoKhhWY1V5XZJZnn8L3CCa6DGE4vACr7otyoDLCb9oSN7uM0oc28eI5Xe?key=VOGyYFgwNp532SfQ0w9QLWeG)
+**Step 5:**  **Enter your Teachable coupon code** in the promo box at checkout, click **Apply**, and watch your discount activate instantly before completing your purchase.
+<img width="435" height="647" alt="billing" src="https://github.com/user-attachments/assets/3db89aed-0522-42ec-9b75-5e78f8920cbc" />
 
 That’s it! You’ve successfully claimed your discount on Teachable.
 
-![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc2FupDub9PfQc69ViI8B1JXoSEChXMmdSPqeHcczFvcdKmZRaC2wp5kuPSumP8ivzwx-7qQoBwoVR03chmgTHRl8Da8v3hhp4mUjlA2fJNGKZHgJ91qTuwK724mvDgR0iZlXZZWQ?key=VOGyYFgwNp532SfQ0w9QLWeG)
+### What if my Teachable Coupon Code Doesn't Work?
 
-## Teachable Pricing - Updated 2025
+Having trouble applying your Teachable promo code? Here are some simple steps to fix it:
+
+- **Check for typos:** Make sure you entered the code correctly. Coupons are case-sensitive, so double-check your input.
+- **Check expiration date:** Some discounts are for a limited time, and the code may have expired.
+- **Check eligibility:** Some coupons are only for new users or first-time subscribers.
+- **Contact support:** If the code still doesn’t work, reach out to Teachable’s customer service. They can check the issue and help you apply the discount.
+
+## **Teachable Pricing - Updated 2025**
 
 Teachable has four pricing plans, with discounts if you choose annual billing instead of monthly.
 
-![teachable pricing plan updated](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdQaoMAZlSA7onPs0GAhu245_Bg60tF0P7QW6qjKyK-O99-qQSGgLDStEDIQi2G3QpBJYWTdSxD3Fw1QPblI1lOIJS5dV9RXJNbu43ue0jKbM6LQm4nUWUoqEzuLeS69-2XCUUD9w?key=VOGyYFgwNp532SfQ0w9QLWeG)
-
-![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfvVQQSxcaTOb2raBiwewW9B8k2U-TFFrlw8O0-03iB_BPz2AhOOWpSW4RttnijtGpcGhpcipX7TU98c93SxoZqxJEOYDai2dgdwKxGU0lXWdvfifgDF5Lpm-GHlauKy0j5YLKtZA?key=VOGyYFgwNp532SfQ0w9QLWeG)
-
-| **Plan** | **Monthly Cost** | **Annual Cost (Monthly Equivalent)** | **Transaction Fees** |
+| **Plan** | **Monthly Cost (Annual Billing)** | **Transaction Fee** | **Published Products** |
 | --- | --- | --- | --- |
-| Starter | $49/month | $39/month ($468/year) | 7.5% base fee |
-| Builder | $119/month | $99/month ($1,188/year) | 0% base fee |
-| Growth | $199/month | $159/month ($1,908/year) | 0% base fee |
-| Advanced | $599/month | $499/month ($5,988/year) | 0% base fee |
+| Builder | $69 / month | 0% | 5 |
+| Growth | $139 / month | 0% | 25 |
+| Advanced | $309 / month | 0% | 100 |
+| Custom | Contact Sales | 0% | Custom / 100+ |
 
-### Comparison of Different Plans - Which Plan is Best for You?
+**Comparison of Different Plans - Which Plan is Best for You?**
 
-| **Feature** | **Starter** | **Builder** | **Growth** | **Advanced** | **Custom** |
-| --- | --- | --- | --- | --- | --- |
-| Transaction Fees |  |  |  |  |  |
-| Sales Transaction Fees | 7.50% | 0% | 0% | 0% | 0% |
-| Usage |  |  |  |  |  |
-| Product Creation | Unlimited | Unlimited | Unlimited | Unlimited | Unlimited |
-| Published Products | 1 | 5 | 25 | 100 | Contact sales |
-| Admin-Level Users | 1 | 1 | 5 | 5 | Contact sales |
-| Students | 100 | 1,000 | Unlimited | Unlimited | Contact sales |
-| Video Storage | Unlimited | Unlimited | Unlimited | Unlimited | Unlimited |
-| Student Management | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Community | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Memberships | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Course Design Templates | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Lesson Comments | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Drip Course Content | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Auto-Graded Quizzes | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Short Answer Assessments | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Certificates | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Course Compliance | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Bulk Student Imports | ❌ | ❌ | ✅ | ✅ | ✅ |
-| teachable:pay | ✅ | ✅ | ✅ | ✅ | ✅ |
-| U.S. Sales Tax, Global VAT, GST Handling | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Student Referrals | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Coupons, Upsells, Order Bumps | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Abandoned Cart Emails | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Bundles | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Built-in Email Marketing | ❌ | ✅ | ✅ | ✅ | ✅ |
-| Integrated Affiliate Program | ❌ | ✅ | ✅ | ✅ | ✅ |
-| Custom Reporting | ❌ | ❌ | ❌ | ❌ | Contact sales |
-| CSS Snippets | ❌ | ✅ | ✅ | ✅ | ✅ |
-| Custom Domain | ❌ | ✅ | ✅ | ✅ | ✅ |
-| White Label Website | ❌ | ❌ | ✅ | ✅ | ✅ |
-| Custom User Roles | ❌ | ❌ | ✅ | ✅ | ✅ |
-| Third Party Integrations | 1 | 3 | 5 | Unlimited | Unlimited |
-| Zapier | ❌ | ❌ | ✅ | ✅ | ✅ |
-| Webhooks | ❌ | ❌ | ✅ | ✅ | ✅ |
-| Developer Tools |  |  |  |  |  |
-| Public API | ❌ | ❌ | ✅ | ✅ | ✅ |
-| API Request Volume Limit | ❌ | ❌ | 10,000/month | 25,000/month | Contact sales |
-| API Request Rate Limit | ❌ | ❌ | 100/minute | 100/minute | Contact sales |
-| OAuth | ❌ | ❌ | ✅ | ✅ | ✅ |
-| Email Support | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Teachable:u Access | ✅ | ✅ | ✅ | ✅ | ✅ |
-| Launch Accelerator Access | ✅ | ✅ | ✅ | ✅ | ✅ |
+| **Category** | **Builder** | **Growth** | **Advanced** | **Custom** |
+| --- | --- | --- | --- | --- |
+| Transaction Fees | 0% | 0% | 0% | 0% |
+| Product Creation | Unlimited | Unlimited | Unlimited | Unlimited |
+| Published Products | 25 | 100 | Contact Sales | Contact Sales |
+| Admin-Level Users | 1 | 5 | 5 | Contact Sales |
+| Students | 1,000 | Unlimited | Unlimited | Contact Sales |
+| Video Storage | Unlimited | Unlimited | Unlimited | Unlimited |
+| Student Management | ✔ | ✔ | ✔ | ✔ |
+| Community | ✔ | ✔ | ✔ | ✔ |
+| Memberships | ✔ | ✔ | ✔ | ✔ |
+| Course Design Templates | ✔ | ✔ | ✔ | ✔ |
+| Lesson Comments | ✔ | ✔ | ✔ | ✔ |
+| Drip Course Content | ✔ | ✔ | ✔ | ✔ |
+| Auto-Graded Quizzes | ✔ | ✔ | ✔ | ✔ |
+| Short Answer Assessments | ✔ | ✔ | ✔ | ✔ |
+| Certificates | ✔ | ✔ | ✔ | ✔ |
+| Course Compliance | ✔ | ✔ | ✔ | ✔ |
+| Bulk Student Imports | ✘ | ✔ | ✔ | ✔ |
+| teachable:pay | ✔ | ✔ | ✔ | ✔ |
+| Tax Handling (U.S. Sales Tax, Global VAT, GST) | ✔ | ✔ | ✔ | ✔ |
+| Student Referrals | ✔ | ✔ | ✔ | ✔ |
+| Coupons, Upsells, Order Bumps | ✔ | ✔ | ✔ | ✔ |
+| Abandoned Cart Emails | ✔ | ✔ | ✔ | ✔ |
+| Bundles | ✔ | ✔ | ✔ | ✔ |
+| Built-in Email Marketing | ✔ | ✔ | ✔ | ✔ |
+| Affiliate Program | ✔ | ✔ | ✔ | ✔ |
+| Custom Reporting | ✘ | ✘ | ✘ | Contact Sales |
+| CSS Snippets | ✔ | ✔ | ✔ | ✔ |
+| Custom Domain | ✔ | ✔ | ✔ | ✔ |
+| White Label Website | ✘ | ✔ | ✔ | ✔ |
+| Custom User Roles | ✘ | ✔ | ✔ | ✔ |
+| Third-Party Integrations | 3 | 5 | Unlimited | Unlimited |
+| Zapier | ✘ | ✔ | ✔ | ✔ |
+| Webhooks | ✘ | ✔ | ✔ | ✔ |
+| Public API | ✘ | ✔ | ✔ | ✔ |
+| API Volume Limit | ✘ | 10,000/month | 25,000/month | Contact Sales |
+| API Rate Limit | ✘ | 100/minute | 100/minute | Contact Sales |
+| OAuth | ✘ | ✔ | ✔ | ✔ |
+| Email Support | ✔ | ✔ | ✔ | ✔ |
+| TeachableU Access | ✔ | ✔ | ✔ | ✔ |
+| Launch Accelerator Access | ✔ | ✔ | ✔ | ✔ |
+| Live Chat | ✔ | ✔ | ✔ | ✔ |
+| Priority Support | ✘ | ✘ | ✘ | ✔ |
+| Dedicated Account Manager | ✘ | ✘ | ✘ | Contact Sales |
+| Implementation & Migration Services | ✘ | ✘ | ✘ | Contact Sales |
 
-## Does Teachable Offer a 7-Day Free Trial?
+**Does Teachable Offer a 7-Day Free Trial?**
 
-Yes! Teachable offers a **7-day free trial** on all paid plans for new users for 7 days. However, you’ll need to enter your credit card or payment details to start your trial.
+Yes! Teachable offers a 7-day free trial on all paid plans for new users for 7 days. However, you’ll need to enter your credit card or payment details to start your trial.
 
 The best part? If you decide Teachable isn’t for you, you still get a 30-day money-back guarantee after your trial.
 
 This means you have a full 7 days to test the platform risk-free!
 
-[![teachable 7-day free trial](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcgHfZPSmdrrE-UHmWyLCsCyR2NBAv_D3dq3taG9C1Wc2VFyu3U17M3zgVhPhApd_Ej88O5Z1r0ifiT8bjOGmjOMgsoeERJB7Cbhmx8yzdEAJPNfWlY0ieZdtlQUTaS1axvEKFq?key=VOGyYFgwNp532SfQ0w9QLWeG)
-](https://teachcoupon.discount/recommends/offer/)
-## Other Ways to Save on Teachable
+[teachable 7-day free trial](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAABQAAAADICAYAAAC3Z0yJAAAQAElEQVR4AeydBZxc1f3Fz53VJEigFIqHYi1FAhS34FYgUKR4sAItEtwtFHcoboE/0AKFhgLFKe4UKRRpoVhLKZIgSdZm3v937mQ2s7Mj782Oz8knb+fJ1e+778q5Fgv0TwREQAREQAREQAREQAREQAREQAREoNEJKH4iIAJNTCAG/RMBERABERABERABERABEWgSAoqmCIiACIiACIhAMxKQANiMb11xFgEREAERaG4Cir0IiIAIiIAIiIAIiIAIiEBTEZAA2FSvW5EVgZkEdCYCIiACIiACIiACIiACIiACIiACItD4BBhDCYCkoEMEREAEREAEREAEREAEREAEREAEGpeAYiYCItDkBCQANnkCUPRFQAREQAREQAREQASahYDiKQIiIAIiIAIi0KwEJAA265tXvEVABERABJqTgGItAiIgAiIgAiIgAiIgAiLQdAQkADbdK1eERQAQAxEQAREQAREQAREQAREQAREQAREQgcYnkIqhBMAUCf2KgAiIgAiIgAiIgAiIgAiIgAiIQOMRUIxEQAREABIAlQhEQAREQAREQAREQAREoOEJKIIiIAIiIAIiIALNTEACYDO/fcVdBERABESguQgotiIgAiIgAiIgAiIgAiIgAk1JQAJgU752RbqZCSjuIiACIiACIiACIiACIiACIiACIiACjU8gPYYSANNp6FwEREAEREAEREAEREAEREAEREAEGoeAYiICIiACnoAEQI9Bf0RABERABERABERABESgUQkoXiIgAiIgAiIgAs1OQAJgs6cAxV8EREAERKA5CCiWIiACIiACIiACIiACIiACTUtAAmDTvnpFvBkJKM4iIAIiIAIiIAIiIAIiIAIiIAIiIAKNTyAzhhIAM4noWgREQAREQAREQAREQAREQAREQATqn4BiIAIiIAL9BCQA9qPQiQiIgAiIgAiIgAiIgAg0GgHFRwREQAREQAREQAQACYBKBSIgAiIgAiLQ6AQUPxEQAREQAREQAREQAREQgaYmIAGwqV+/It9MBBRXERABERABERABERABERABERABERCBxieQLYYSALNR0T0REAEREAEREAEREAEREAEREAERqF8CCrkIiIAIDCAgAXAADl2IgAiIgAiIgAiIgAiIQKMQUDxEQAREQAREQAREIElAAmCSg/6KgAiIgAiIQGMSUKxEQAREQAREQAREQAREQASanoAEwKZPAgLQDAQURxEQAREQAREQAREQAREQAREQAREQgcYnkCuGEgBzkdF9ERABERABERABERABERABERABEag/AgqxCIiACAwiIAFwEBLdEAEREAEREAEREAEREIF6J6Dwi4AIiIAIiIAIiMBMAhIAZ7LQmQiIgAiIgAg0FgHFRgREQAREQAREQAREQAREQASMgARAg6D/ItDIBBQ3ERABERABERABERABERABERABERCBxieQL4YSAPPR0TMREAEREAEREAEREAEREAEREAERqB8CCqkIiIAIZCUgATArFt0UAREQAREQAREQAREQgXoloHCLgAiIgAiIgAiIwEACEgAH8tCVCIiACIiACDQGAcVCBERABERABERABERABERABGYQkAA4A4R+RKARCShOIiACIiACIiACIiACIiACIiACIiACjU+gUAwlABYipOciEIFAEARIHYlEAjrEQGlAaUBpQGlAaUBpQGlAaUBpQGmgQmmgodofqXYVfyM0yWRUBEQgBwEJgDnA6LYIhCXAAokHC/XUbzwe7y98ea4jDjEQA6UBpQGlAaUBpYFKpAH5oXSmNKA0UL9pgG2qzCPVxuJv2DaazImACAwmIAFwMBPdEYHQBFgI8UgVUumVjb6+PvT29oK/OvrEwdKD0oHSQcXSgNKb8hylAaUBpQGlAaUBpYE6TANsP/FI1ZlS7Su2t1LtLv6GbrDJoAiIQD8BCYD9KHQiAtEIsODhwcKIBRMLKRZWPT094NHd3d3/y/NKH/KvG2IgBkoDSgNKA0oDSgNKA0oDSgNKA/WVBtiWSh1sX7GdxfYWD7a/Uke01ptMi0BjEwgTOwmAYSjJjAhkEGChQ+GPBwsiFkosnFIFVVdXlxef+KujC2IgBkoDSgNKA0oDSgNKA0oDSgNKA2VNAw1X56Zwm2pfsa3FNhfbXmyDsT3GI6OZpksREIE8BCQA5oGjRyKQjQALGhY6PFgAsSBigdQzfTriDz0EnHEGOjbfHLMsvjhmXWIJzLbkkjrEQGlAaUBpQGlAaUBpoAJpQHUO1buUBpQG6j8NsA01Yvnl0bbHHgguvxy9r7wCtrXY7mL7i+0wHmyX8cjWZtM9ERCBwQQkAA5mojsikJMAC5jUwUKHwh+PnqlTgRtvRMdxx6HzqqvQ+s47Od3QAxEQAREoKwE5LgIiIAIiIAIiIAJ1TsB99x3anngCneeei/Zjj0XCzjkakG2vlAjIdlmdR1PBF4GKEpAAWFHc8qyeCbCA4UHhj4UOe6BYALE3Krj7brRPnIjYZ5/VRBQVCBEQAREQAREQAREQAREQARGoewLxOFreew/uoYfQY6Ig219sh7FNxoPtMx51H09FQASGQCCsVQmAYUnJXNMTYMHCgwUNBUAWPjwSL7yAjhtuQMvHHzc9IwEQAREQAREQAREQAREQARGoOIGG9tB1daHj3nsRWLuL7S8KgGyPsW3Go6Ejr8iJQAkJSAAsIUw51bgEUgVLSvxjoeOPKVPQcfnlaHvzzcaNvGImAiIgAiIgAiJQBwQURBEQARFoXAKxb79F+333wbfB+vpAAZBtM7bTUkfjxl4xE4HSEJAAWBqOcqUJCLBgYSHDwoYFD3ufYg8/jNZ//rMJYq8oioAI1AUBBVIEREAEREAEREAEGpFAEKDtlVe8AMj2GA+2zXg0YnQVJxEoBwEJgOWgKjcbigCFPx4sXHiwsKEAyKPtkUcQ++qrmoqvAiMCIiACIiACIiACIiACIiACjUag5dNP/cg/tsfYLuPBdhqPRour4iMCYQlEMScBMAotmW1aAixUeLCQ4cFChwLgsIcfhovHm5aLIi4CIiACIiACIiACIiACIlBVAk3jeWz6dLAtljrYPmPkU7881yECIpCbgATA3Gz0RAQGEGDBwsKG4l/qGGBAFyIgAiIgAiIgAiJQFQLyVAREQASagwDbYzxSbTP+MuapX57rEAERyE5AAmB2LrorAv0EWJikHyxwUke/IZ2IgAiIQLUJyH8REAEREAEREAERaHAC6e0yRpXX/NUhAiJQmIAEwMKMZEIEPAEWLpmHf1BDfxQUERABERABERABERABERABEWh0Aql2GePJc/7qEIFmIxA1vhIAoxKT+aYmwMIl/WhqGIq8CIiACIiACIiACIiACIhANQk0nd+ptljTRVwRFoESEJAAWAKIcqLxCbCgSY8lr3mk39O5CIiACIiACIiACFSegHwUAREQAREQAREQgcIEJAAWZiQTIiACIiACIlDbBBQ6ERABERABERABERABERABEchDQAJgHjh6JAL1REBhFQEREAEREAEREAEREAEREAEREAERaHwCxcRQAmAx1GRHBERABERABERABERABERABERABKpHQD6LgAiIQCQCEgAj4ZJhERABERABERABERABEagVAgqHCIiACIiACIiACIQjIAEwHCeZEgEREAEREIHaJKBQiYAIiIAIiIAIiIAIiIAIiEABAhIACwDSYxGoBwIKowiIgAiIgAiIgAiIgAiIgAiIgAiIQOMTKDaGEgCLJSd7IiACIiACIiACIiACIiACIiACIlB5AvJRBERABCITqJoAmHj7bXRffHHkAMuCCIiACIiACIiACIiACIiACIiACIiACIiACIhAeAJVEwCn77cf+m68MXxIZVIEREAEREAERGAgAV2JgAiIgAiIgAiIgAiIgAiIQAgCVREAe197DcHbbwOzzoquCy9E8O23CL76Cl1XXIHp553nz0OEXUZEQAQACIIIiIAIiIAIiIAIiIAIiIAIiIAIiEDjExhKDKsjAN59N9Dd7UXAvquuQtwEwe5rrkHfGWcgftFFiL/yylDiJLsiIAIiIAIiIAIiIAIiIAIiIAIi0IgEFCcREIEKE4i/9RambrABEh9+WGGfS+tdRQXA4Jtv0P3QQwheeAEIAmDqVGDaNPTccgv6LrsM+Oor4Ntv0ff886WNpVwTAREQAREQAREQAREQgYYhoIiIgAiIgAiIgAiUhYBpVT2mWcXTxL7eJ55AYNddxx2HoK+vLN5WwtGKCoCJf/0L8QceSMZr+HCgsxNu1VXhll8eMHHQP4jHETfY/lx/REAEREAEREAEshPQXREQAREQAREQAREQAREQgZIS6LnxRvRsvz2mb7YZeu++G71//CP6JkwAB6sFb7yB4NNPS+pfJR2rqAAYTJ6MgKP73nsPbpll4FZeGXjnHSRuugno7fWCIJxD8MoriH/8cSU5yC8RqEsCCrQIiIAIiIAIiIAIiIAIiIAIiIAIiEBpCMT/9jfg66+BTz5B71VXoe8vfwG++w6YPh2c1drz1FNITJlSGs8iujJU4xUVANHSAnzve379P/7Gdt0V6OpC8Pe/A62tcOusA8w1FzgasO+JJ4YaN9kXAREQAREQAREQAREQAREQAREQgUYhoHiIgAiUmUDitdeAeBxIJBD8+9/AD38IzDMPMMssQCyGxAsv1O2+FbEysxvovMFyCywAzDqrX+8vcc89yeGTJgI6EwZbNtwQboklPGg899xAu7oSAREQAREQAREQAREQgaYnIAAiIAIiIAIiIALlIBD/738R/POfXuhDWxuCL75AwBGBJgbG1lsPHNTGGateGCxHAMrsZkUFwL533wVmnx3o6AAI8sknk8qqRTJm4l/Hrruibd99gVGj0Pfyy4i/84490X8REAEREAEREIEBBHQhAiIgAiIgAiIgAiIgAiJQUgJ9990HTJ4Mt/DCcD/+sZ+dmrB7/voXv4AzIRDt7SX1s5KOVVQAbDVhj9N7CSygCJja+KOlBbGVVoIbPhztY8ei7Ve/QvDZZwg++qiSLOSXCNQVAQVWBERABERABERABERABERABERABESgNASChx8GggBuxRURW3ddYMQI+M0//vlPv3RdYAKgW3BBuLa20ngYwZVSGI2VwpHQbpjQ5xdO5EhAju7jxh+0PHIkWjfZhGfJY7bZ/MjAIPU8eVd/RUAEREAEREAEREAEREAEREAERKAZCSjOIiACZSSQ+Ne/EH/tNbjll0f7/vuj8+ij0bL66kkfv/oKwW23wXE5uwUWQN8//oFg2rTkszr6W1kB0ABx+CQ3/kB3dxKTc3Arr4yW+eZLXtvf2JJLws+t/uILu9J/ERABERABERABERABERABQAxEQAREQAREQATKQSDBWajffov2ww9H60orwc0yC9wyy3htiv4FH34IcLDal1+iZfHF4To7ebuujsoKgEEAmODnD8z419KC2OcbmQAAEABJREFUlqWXnnGR/GlZYgm4uedGkBIJk7f1VwREQAREQAREQAREQAREQAREQAREQAREQARKSyCRAHf+xfDh/e62rLYa/O6/vNPVheDtt4FPPwXqdLZqjPGo2BEz7ygCckvllKetrXCLLpq68r+xESPQeuihaNt4Y3+tPyIgAgMJ6EoEREAEREAEREAEREAEREAEREAERKA0BBIffABQn+LeFTOcjJlW5TcD4TW1LBMBE3/5CzBlCgYMbEN5/5XK9VipHArjTs9jjwHTpoGLKqbMu/nnRyuHVaZu8Nc5dGy3HWILLcQrHSIgAiEIuDnmgFtiCYDDlTkkeeTIELaKM+JGjkRwwQWhD5x6anEeyZYIiIAIiIAIlIrAUUeFLrdYxmHBBUvls9wRAREQgaESkH0REIEyE3A/+AFi662HFtOoUl7Fvvc9xDJmrPpnpln53zr7E6tkeP0caaqm6Z5+//uAQU2/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bhEQARFobAKKnQiIgAiIgAiIgAiIgAhUiEBsoYUQGzMmOWMw5Wc8jvh99yGYOjV1R78NTkACYJ2+4MT77yPBRX0zwh9bfXV0TJiQcVeXtUhAYRIBERABERABERABERABERABERCBShBo22EHxLbZxg8a6vfvs8/QR10hCPpv6aQ8BGrBVQmAtfAWighD/K23kLBjgNWODrRssQVi88474LYuREAEREAEREAEREAEREAEREAEqkpAnotAVQm0/OhH6DjxRGDBBWeGIx5H3733IjFlysx7OmtYAhIA6/TV9v7pT0Bq8w/Goa0NbswYtG29Na90iIAIiIAIiIAIiIAI1BwBBUgEREAEREAEqkegZf75Mezqq+G+//3+QCRefBHBxx/3X+ukcQlIAKzDd5v47jsk7rsPSCT6Q+9WWAGdZ56J2Nxz99/TiQiIgAiIQA0SUJBEQAREQAREQAREQAREoFoE5poLSNsvIHj3XfgBRtUKj/ytGAEJgBVDXTqPeh96CPjmm5kOdnai/cAD0bLYYjPv6aymCShwIiACIiACIiACIiACIiACIiACIlBpAm722YFFFwWcg//X14f4Aw/4U/0pD4FacVUCYK28iZDhCLq7kXj66YGj/xZaCG1bbBHSBRkTAREQAREQAREQAREQAREQARGoIAF5JQI1Q8CNHIm2MWPg1lkHaG314Qr+9z8EPT3+XH8al0CscaPWmDFLvPEGEvffPzNyLS1wq68OxPQqZ0LRmQiIgAiIgAiIgAjUGgGFRwREQAREQASqT8C1taF9l10w/LrrEFtvPcA0BXz+Ofr+9rfqB04hKCsBqUZlxVt6xzkCMOjqSjrMIbv28bp55kle668IiIAIiEBtE1DoREAEREAEREAEREAERKAGCHAjkGFXXIHWo45C2znnoHXJJWsgVApCOQlIACwn3TK4HX/lFWDyZHC+vpt/frSddx7ad9oJ+lc/BBRSERABERABERABERABERABERABEag2AYqAncccg4699oKbZZZqB6ch/a+lSEkArKW3ESIs8XffBeJxYK650HbooejYbTe0/PCHIWzKiAiIgAiIgAiIgAiIgAiIgAiIQIUJyDsREAERqAkCEgBr4jWED0Tn0Uej7dJL0TlpEtr32Se8RZkUAREQAREQAREQARGoEgF5KwIiIAIiIAIiIALVJSABsLr8I/sem3dedOy8M1qXXTayXVkQAREQARGoIgF5LQIiIAIiIAIiIAIiIAIiIAJVIiABsErg5W1zElCsRUAEREAEREAEREAEREAEREAEREAEGp9ArcVQAmCtvRGFRwREQAREQAREQAREQAREQAREoBEIKA4iIAIiUDMEJADWzKtQQERABERABERABERABBqPgGIkAiIgAiIgAiIgAtUnIAGw+u9AIRABERABEWh0AoqfCIiACIiACIiACIiACIiACFSRgATAKsKX181FQLEVAREQAREQAREQAREQAREQAREQARFofAK1GEMJgLX4VhQmERABERABERABERABERABERCBeiagsIuACIhATRGQAFhTr0OBEQEREAEREAEREAERaBwCiokIiIAIiIAIiIAI1AYBCYC18R4UChEQAREQgUYloHiJgAiIgAiIgAiIgAiIgAiIQJUJSACs8guQ981BQLEUAREQAREQAREQAREQAREQAREQARFofAK1GkMJgLX6ZhQuERABERABERABERABERABERCBeiSgMIuACIhAzRGQAFhzr0QBEgEREAEREAEREAERqH8CioEIiIAIiIAIiIAI1A4BCYC18y4Ukjoj4JyrsxAruCIgAhUnIA9FQAREQAREQAREQAREQAREoAYISACsgZegINQ+AeeSYp9zA397f/CDgoGXAREQAREQAREQAREQAREQAREQAREQgcYnUMsxlABYy29HYaspAs4lxb9YLAbnnD+mr7xyTYVRgREBERABERABERABERABEagqAXkuAiIgAjVJIFaToVKgRKCGCDjn+kPjnPPCX0oEnLbKKv3PdCICIiACIiACIiACSQL6KwIiIAIiUA4CziXbY+VwW26KQKMTkADY6G9Y8SsJAeeSBQ2Fv9TR0tKCviWWwHdrr10SP+SICIhAgxFQdERABERABERABERABEpGoHe++frdci7ZPuMN5xx/dIiACBQgIAGwACA9FoEUAecc0sU/CoCJBRbAlB13xLTll0di+HBk/tO1CIiACIiACIiACIiACIiACIjA0Al8t+GGA2Zj0UXnJP6Rg47aIFDroZAAWOtvSOGrCQLOOS/+OedA4S91tLa3o2/0aPzvqKMwZeON0cNeKTMD/RMBERABERABERABERABEWg2AopvmQh8s/76mLrppr4tlhqUwV/nkgKgc8nfMnkvZ0WgIQhIAGyI16hIlJOAc873NDnnvAhI8a+1tRVtbW3+4Hmw0EL46qCD8OnRR+OrsWMRmDBolqB/IiACIiACIiACzUZA8RUBERABESgVgZ4FFsBX22+PyXvvjcQii2QVAJ1zpfJO7ohAQxOQANjQr1eRKyUB51xWAbDdxD6Kga2dnehdfnl88atf4aMzz8Q3a62FIKZPDPonAs1IQHEWAREQAREQAREQAREoigCXVvpmnXXw6eGH49Njj8XkX/4SwahR4MCL1MFBGakRgM5JACwKtCw1HQGpE033yhXhYgg45+Cc8wIgCxoWOCx8KP7x6OjoAH95tA4fjp6f/hSfTpiAdx55BG89+qg//m7nOh6BGIiB0oDSgNKA0oDSgNKA0oDSgNKA0kBmGki1m9699158esop+G7LLdG37LJonWUW39bioAsera2t/SMBnXPgP+eSvzzXIQLVIFAPfkoArIe3pDDWDAHnnBcBWeiw8KHgR/Ev28FnNMMjZZ6/OloH9N6Jh3goDSgNKA0oDSgNKA0oDSgNNEAaUB3XhLli32N6m4nnPNieSj/Y5uJ9HhyQwYEZzjk/UAP6JwIiUJCABMCCiGRABJIEnEsWLixoeLBwY+HDQomFUaEjrLlC7uh5B8RADJQGlAaUBpQGajMN6L3ovSgNKA0oDRSTBjLbSp2dnb7Oz18edJNm2P5iOyxdAEy21vRXBESgEAEJgIUI6bkIpBFwbqAIyIKHhRALIxZKLJx0dEIMxKCp04BVWBV/fQNKA0oDSgNKA0oDSgNKA6VJA2xn8WCbi20vtsE4IMO5ZNvMOZfWYtOpCIhALgISAHOR0X0RyEHAOeeHmbPQYeHDg71QLJB4sHBKFfbDhg3rF8N4rmMYxEAMlAaUBpQGlAaUBpQGlAaUBpQGlAYy00CqDZX+y7YVD7azKP6x3cX2F9tiziXbZTmabbotAhUjUC8eSQCslzelcNYUAeeShQ0LHhZAPFgYsVBi4cSDBRWP9AJM56XpBRRHcVQaUBpQGlAaUBpQGlAaUBqooTTQ3+mvMJUmXbIdlTrYtmJbi20utr+cS7bFnHM11UZUYESg1glIAKz1N6Tw1SwB55wfCeic8xuDsEBiwcQjXQhkgZUqvPSrNVGUBpQGlAaUBpQGGjUNKF5K20oDSgNKA0NNA2w7pQ62qdi2YjuLB8U/Hs4l22HQPxEQgUgEJABGwiXDIjCYgHPOC4DOJX9ZOPFgYcWDBRcPnuvQDndKAw2eBoaw+53ShtKG0oDSgNKA0oDSgNJAM6cBtpl4pBiwTcWDoh8P55LCn3MO+icCIhCdgATA6MxkQwSyEnDO+RGBzjkvCLKQSi+weK6jBWIgBkoDSgNKA0oDSgNKA0oDSgNKA0oDmWmA7ScevM9fHs4l21bOJdta0D8RqDEC9RScWD0FVmEVgXog4FyycHIu+cuCS0esXxQVC7FQGlAaUBpQGlAaUBpQGlAaaKA0oHpurLTp2blkO8q55G89tAEVRhGoBwISAOvhLSmMIiACIiACIiACIiACNUxAQRMBERABERABERCB2iYgAbC2349CJwIiIAIiUC8EFE4REAEREAEREAEREAEREAERqFECEgBr9MUoWPVJQKEWAREQAREQAREQAREQAREQAREQARFofAL1FkMJgPX2xhReERABERABERABERABERABERCBWiCgMIiACIhA3RCQAFg3r0oBFQEREAEREAEREAERqD0CCpEIiIAIiIAIiIAI1D4BCYC1/44UQhEQAREQgVonoPCJgAiIgAiIgAiIgAiIgAiIQA0TkABYwy9HQasvAgqtCIiACIiACIiACIiACIiACIiACIhA4xOoxxhKADa6/V4AAALjSURBVKzHt6Ywi4AIiIAIiIAIiIAIiIAIiIAIVJOA/BYBERCBuiIgAbCuXpcCKwIiIAIiIAIiIAIiUDsEFBIREAEREAEREAERqA8CEgDr4z0plCIgAiIgArVKQOESAREQAREQAREQAREQAREQgRonIAGwxl+QglcfBBRKERABERABERABERABERABERABERCBxidQrzGUAFivb07hFgEREAEREAEREAEREAEREAERqAYB+SkCIiACdUdAAmDdvTIFWAREQAREQAREQAREoPoEFAIREAEREAEREAERqB8CEgDr510ppCIgAiIgArVGQOERAREQAREQAREQAREQAREQgTogIAGwDl6SgljbBBQ6ERABERABERABERABERABERABERCBxidQzzGUAFjPb09hFwEREAEREAEREAEREAEREAERqCQB+SUCIiACdUlAAmBdvjYFWgREQAREQAREQAREoHoE5LMIiIAIiIAIiIAI1BcBCYD19b4UWhEQAREQgVohoHCIgAiIgAiIgAiIgAiIgAiIQJ0QkABYJy9KwaxNAgqVCIiACIiACIiACIiACIiACIiACIhA4xOo9xhKAKz3N6jwi4AIiIAIiIAIiIAIiIAIiIAIVIKA/BABERCBuiUgAbBuX50CLgIiIAIiIAIiIAIiUHkC8lEEREAEREAEREAE6o+ABMD6e2cKsQiIgAiIQLUJyH8REAEREAEREAEREAEREAERqCMCEgDr6GUpqLVFQKERAREQAREQAREQAREQAREQAREQARFofAKNEEMJgI3wFhUHERABERABERABERABERABERCBchKQ2yIgAiJQ1wQkANb161PgRUAEREAEREAEREAEKkdAPomACIiACIiACIhAfRKQAFif702hFgEREAERqBYB+SsCIiACIiACIiACIiACIiACdUZAAmCdvTAFtzYIKBQiIAIiIAIiIAIiIAIiIAIiIAIiIAKNT6BRYvj/AAAA//8RZHRRAAAABklEQVQDALb/DIqRO2v3AAAAAElFTkSuQmCC)
+
+## **Other Ways to Save on Teachable**
 
 Want to save even more?
 
 Here are some extra ways to get big discounts on Teachable plans.
 
-### **✅ Choose an Annual Plan**
+### **1. Choose an Annual Plan**
 
 Annual billing saves you up to 20% on the Advanced Plan and even 33% on the starter Plan. Plus, you can get 3 extra months free when choosing an annual plan!
 
-### **✅ Look for Seasonal Deals**
+### **2. Look for Seasonal Deals**
 
 Teachable offers huge discounts during sales events like Black Friday and Cyber Monday, with savings of up to 50% off annual plans.
 
-### **✅ Use the Referral Program**
+### **3. Use the Referral Program**
 
 Refer a friend to Teachable, and if they sign up for a paid plan, you get $25 in credit. You can use this credit to reduce your own subscription cost!
 
-## What if my Teachable Coupon Code Doesn't Work?
+## **What Are The Features You Get With Teachable?**
 
-Having trouble applying your Teachable promo code? Here are some simple steps to fix it:
+Now, let’s talk about what you get against what you pay on Teachable.
 
-👉 **Check for typos** – Make sure you entered the code correctly. Coupons are case-sensitive, so double-check your input.
+Here’s the breakdown of the Teachable features.
 
-👉 **Check expiration date** – Some discounts are for a limited time, and the code may have expired.
+| **Category** | **Features** |
+| --- | --- |
+| Course Builder | Beginner-friendly drag-and-drop interface; no coding required; supports multimedia (videos, audio, PDFs, images); customizable structure with sections/lectures; drip content scheduling; quizzes and graded assessments. |
+| Marketing Tools | Affiliate program with tracked payouts; built-in email campaigns with automation and segmentation; customizable sales pages with templates; coupons and promotions; integrations with Mailchimp, ConvertKit, Zapier. |
+| Analytics & Reports | Enrollment tracking; student progress monitoring (completion rates, quiz scores, engagement); revenue insights (sales, refunds, affiliate payouts); engagement metrics to identify drop-offs; exportable reports. |
+| Mobile-Optimized Website | Fully hosted, responsive across devices; custom branding with logo, colors, domain; fast loading; student access via web, iOS/Android app; offline video viewing. |
+| Hosting | Unlimited storage and bandwidth; scalable for large courses; adaptive video streaming; included in all plans (no extra fees); 99.9% uptime reliability. |
 
-👉 **Check eligibility** – Some coupons are only for new users or first-time subscribers.
-
-👉 **Contact support** – If the code still doesn’t work, reach out to Teachable’s customer service. They can check the issue and help you apply the discount.
-
-## Teachable Features
-
-Teachable houses powerful tools inside it, from course creation to marketing your course; thus, it is called an all-in-one platform for course creation.
-
-Let’s look at Teachable Features in detail.
-
-### Easy-to-Use Course Builder
-
-Teachable provides a **beginner-friendly course builder**, which means you don’t require advanced coding or technical skills to build your course from scratch.
-
-All thanks to its **drag-and-drop interface**.
-
-Key features include:
-
-- **Multimedia Support**: It supports all media types such as videos, audio files, PDFs, images, and more to create dynamic content.
-- **Quizzes and Assessments**: Create quizzes to test student knowledge, with options for multiple-choice questions, graded assessments, and automatic feedback.
-- **Customizable Structure**: Organize content into sections and lectures. Brasileiros uses a block-based system to arrange modules, ensuring flexibility in course design.
-- **Drip Content**: Schedule content release over time to keep students engaged.
-- **No Coding Required**: The platform handles all technical aspects, so creators can focus on content. This makes it accessible for non-tech-savvy users like educators, coaches, or entrepreneurs.
-
-### Powerful Marketing Tools
-
-Teachable provides built-in marketing features to help creators promote and sell their courses without needing external tools.
-
-These include:
-
-- **Affiliate Marketing**: Set up an affiliate program where partners earn commissions for driving sales. Teachable tracks affiliate performance and payouts.
-- **Email Campaigns**: Integrated email marketing tools allow you to send targeted campaigns to students or leads. You can segment audiences, automate welcome emails, or re-engage inactive users.
-- **Sales Pages**: Create high-converting landing pages with customizable templates optimized for conversions. Features like countdown timers, testimonials, and pricing displays help boost sales.
-- **Coupons and Promotions**: Offer discounts or limited-time deals to incentivize purchases.
-- **Integrations**: Connect with tools like Mailchimp or ConvertKit for advanced email marketing, or use Zapier to automate workflows. These tools are included at no extra cost, reducing reliance on third-party services.
-
-### Smart Analytics & Reports
-
-Teachable’s analytics dashboard provides actionable insights to optimize course performance:
-
-- **Enrollment Tracking**: Monitor how many students sign up, including trends over time.
-- **Student Progress**: Track completion rates, quiz scores, and engagement metrics to understand how students interact with your course.
-- **Revenue Insights**: View detailed sales data, including total revenue, refunds, and affiliate payouts.
-- **Engagement Metrics**: Identify drop-off points in courses to improve content or structure.
-- **Exportable Reports**: Download data for deeper analysis or integration with external tools.
-    
-    These insights help creators refine their courses, improve student outcomes, and increase revenue by identifying what works and what doesn’t.
-    
-
-### Responsive Mobile Optimised Website
-
-Teachable provides a fully hosted, mobile-responsive website for your school:
-
-- **Cross-Device Compatibility**: Courses and sales pages are optimized for smartphones, tablets, and desktops, ensuring a seamless user experience.
-- **Custom Branding**: Customize your school’s look with your logo, colors, and domain (e.g., yourschool.com).
-- **Fast Loading**: Teachable’s infrastructure ensures quick load times, improving user satisfaction and SEO.
-- **Student Accessibility**: Students can access courses via the Teachable iOS/Android app or any mobile browser, with offline viewing options for videos.
-    
-This ensures students can learn anytime, anywhere, which is critical given the growing use of mobile devices for education (over 50% of web traffic is mobile).
-    
-
-### Unlimited Hosting for Courses
-
-Teachable offers unlimited hosting for all course content, with no caps on storage or bandwidth:
-
-- **Scalability**: Host as many videos, PDFs, or other files as needed, regardless of course size or student volume.
-- **High-Quality Streaming**: Videos are hosted on Teachable’s servers with adaptive streaming for smooth playback, even on slower connections.
-- **No Extra Fees**: Unlike some platforms that charge for bandwidth or storage, Teachable includes unlimited hosting in all plans.
-- **Reliability**: Teachable’s cloud-based infrastructure ensures 99.9% uptime, so courses are always accessible.
-    
-    This feature is ideal for creators with large courses or growing audiences, as it eliminates concerns about server costs or technical limitations.
-    
-
-## About Teachable
+## **About Teachable**
 
 Teachable is a website where you can create and sell online courses. It’s great for teachers, coaches, or anyone who wants to share their knowledge.
 
@@ -319,34 +206,36 @@ You can add videos, quizzes, and lessons easily. It also helps you collect payme
 
 Teachable lets you sell courses as one-time purchases, memberships, or subscriptions. It’s simple to use and a great way to earn money by teaching what you know.
 
-## Final Thoughts: Get Up to 80% Off with Teachable Coupons
+## **Final Thoughts: Get Up to 80% Off with Teachable Coupons**
 
-Teachable is one of the best platforms for building and selling online courses.
+Teachable is one of the best platforms for creating, marketing, and selling online courses, and with the right coupon code, you never have to pay full price.
 
-You can easily upload videos, add quizzes, set prices, and use marketing tools to reach more students.
+From 50% off the Advanced Plan to $600 savings on the Growth Plan, site-wide promo codes, and even a 7-day free trial, there are plenty of ways to cut costs while unlocking premium tools.
 
-And with these exclusive Teachable coupon codes, you can access premium features at a huge discount
+Whether you’re just starting with the Builder Plan, scaling faster with Growth, or exploring enterprise solutions with Advanced and Custom, Teachable discount codes make it easier to choose the plan that fits your goals without overspending.
 
-[![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdLp1K_J10ceGOcGiaNn615lp3pN8q1EEyc2YqR7bVkxa5Bx5sxCd2MHWUoqQ44nS2e-cNcwY9T3YxWEq2RBS13dRvhZVGHcUZMXlvFsBgfbx-mNQ-cG0Be8OGhcKKT2XsuBXCP2g?key=VOGyYFgwNp532SfQ0w9QLWeG)
-](https://teachcoupon.discount/recommends/offer/)
-## Frequently Asked Questions About Teachable
+With this guide, you now have all the top Teachable promo codes and savings options in one place.
 
-### How Can I Use Teachable for Free?
+Don’t forget to bookmark this page or check back during seasonal events like Black Friday and Cyber Monday to catch the latest deals and maximize your savings.
 
-**Yes! You can sign up for the Teachable Free Plan** and create one course and one quiz using their easy-to-use website builder. It’s a great way to start without any cost!
+## **FAQs**
 
-### Can I Get a Refund on Teachable?
+### **Can I Use Teachable for Free?**
 
-Yes! Teachable offers a **30-day money-back guarantee** on all paid plans. If you’re not happy with your subscription, you can request a refund within 30 days of purchase. However, after 30 days, refunds may not be available.
+Yes! You can sign up for the Teachable Free Plan and create one course and one quiz using their easy-to-use website builder. It’s a great way to start without any cost!
 
-### Does Teachable Offer a Free Trial?
+### **Can I Get a Refund on Teachable?**
 
-Yes! Teachable offers a **14-day free trial**, allowing you to explore all premium features without entering your credit card details.
+Yes! Teachable offers a 30-day money-back guarantee on all paid plans. If you’re not happy with your subscription, you can request a refund within 30 days of purchase. However, after 30 days, refunds may not be available.
 
-### What Is the Launch Accelerator on Teachable?
+### **Does Teachable Offer a Free Trial?**
 
-Launch Accelerator is a new tool designed to help you launch and sell your course within **30 days**. It’s a great feature for creators who want to start earning quickly.
+Yes! Teachable offers a 14-day free trial, allowing you to explore all premium features without entering your credit card details.
 
-### What Is SSO Teachable?
+### **What Is the Launch Accelerator on Teachable?**
 
-**Teachable SSO (Single Sign-On)** is a feature that allows users to log in to **Teachable** using their credentials from another platform, instead of creating a new account or using separate login details.
+Launch Accelerator is a new tool designed to help you launch and sell your course within 30 days. It’s a great feature for creators who want to start earning quickly.
+
+### **What Is SSO Teachable?**
+
+Teachable SSO (Single Sign-On) is a feature that allows users to log in to Teachable using their credentials from another platform, instead of creating a new account or using separate login details.
